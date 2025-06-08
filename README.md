@@ -10,4 +10,3 @@ follow me on Instagram : https://www.instagram.com/hyper_r7100?igsh
 follow me on telegram : t.me/hyper_r7100
 
 follow me on Twitter: https://x.com/HYPER390961?t=L5dnZf4MIu
-TELEGRAM: t.me/hyper_r7100
