@@ -11,7 +11,7 @@ Remember : THIS FOR EDUCATIONAL PURPOSE ONLY !! NOT REPOSONSIBLE FOR ABUSE
 🐦 X (Twitter): https://x.com/HYPER390961?t=L5dnZf4MIu
 
 
-✈️ Telegram: 
+✈️ Telegram:                           
 https://t.me/hyper_r7100
 
 
