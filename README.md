@@ -3,10 +3,26 @@ Here are +200 different RATs some with source code
 Feel free to use or redistribute them
 Remember : THIS FOR EDUCATIONAL PURPOSE ONLY !! NOT REPOSONSIBLE FOR ABUSE
  
-follow me on discord : https://discord.gg/gdd6cKMBbT
+🔗 My Social & Developer Profiles
 
-follow me on Instagram : https://www.instagram.com/hyper_r7100?igsh
+🐙 GitHub: https://github.com/HYPER12755?tab=repositories
+(Your coding projects and repositories)
 
-follow me on Twitter: https://x.com/HYPER390961?t=L5dnZf4MIu
+📸 Instagram: https://www.instagram.com/hyper_r7100?igsh
+(Your personal and tech posts)
 
-follow me on telegram : https://t.me/hyper_r7100
+🐦 X (Twitter): https://x.com/HYPER390961?t=L5dnZf4MIu
+(Tech updates, news, and posts)
+
+✈️ Telegram: https://t.me/hyper_r7100
+(Join your chat/channel directly)
+
+🎮 Discord: https://discord.gg/gdd6cKMBb
+(Your community server invite link)
+
+
+
+
+
+
+
