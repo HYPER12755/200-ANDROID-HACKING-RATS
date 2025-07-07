@@ -7,12 +7,15 @@ Remember : THIS FOR EDUCATIONAL PURPOSE ONLY !! NOT REPOSONSIBLE FOR ABUSE
 
 📸Instagram:
 https://www.instagram.com/hyper_r7100?igsh
+
 🐦
 X(Twitter):
-https://x.com/HYPER390961?t=L5dnZf4MIu
+https://x.com/HYPER390961?t=L5dnZf4MIu 
+
 ✈️
 Telegram:
-https://t.me/hyper_r7100
+https://t.me/hyper_r7100               
+
 🎮
 Discord:
 https://discord.gg/gdd6cKMBb
