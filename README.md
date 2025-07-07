@@ -5,7 +5,7 @@ Remember : THIS FOR EDUCATIONAL PURPOSE ONLY !! NOT REPOSONSIBLE FOR ABUSE
  
 # 🔗 My Social & Developer Profiles.   
 
-📸Instagram:https://www.instagram.com/hyper_r7100?igsh
+📸Instagram:instagram.com/hyper_r7100?igsh
 🐦
 X(Twitter):https://x.com/HYPER390961?t=L5dnZf4MIu
 ✈️
